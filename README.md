@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @XnXs03
+- I especially like the C++ language and I'm trying to learn Latex and a little bit of artificial intelligence. I'm still a newbie to all programs.
